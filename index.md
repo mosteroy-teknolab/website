@@ -5,7 +5,7 @@
 
 Vi ønsker å bidra til at elever ved Mosterøy skole skal kunne utforske teknologi og være kreative, gjerne sammen med andre. En målsetning er å stille lag på [First lego league](https://hjernekraft.org/fll/om-first-lego-league) høsten 2019. 
 
-Oppdatering 2019-09-09: Vi har meldt på et lag og har utstyr, nå trengs elever og foreldre. [Invitasjon](fll2019-invitasjon.pdf).
+Oppdatering 2019-09-09: Vi har meldt på et lag og har utstyr, nå trengs elever og foreldre. [Invitasjon](fll2019-invitasjon.pdf). [Foreldreskjema](https://hjernekraft.org/media/dokumenter/fll/for-veilederen/ressurser/foreldreskjema/foreldreskjema-no.pdf) (samtykke til fotografering på konkurransen.)
 
 Ta kontakt med Åsmund Hjulstad <asmund.hjulstad@gmail.com>.
 
